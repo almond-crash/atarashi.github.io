@@ -1,3 +1,0 @@
-# atarashi.github.io
-
-#changes
